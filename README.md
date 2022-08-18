@@ -1,2 +1,2 @@
 # Askluft
-Åskluft - naturlikt rent
+Åskluft - lika fräscht inne som ute.
