@@ -1,2 +1,2 @@
-# Askluft
-Åskluft - lika fräscht inne som ute.
+# Åskluft
+Lika fräscht inne som ute.
